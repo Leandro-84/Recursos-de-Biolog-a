@@ -1,2 +1,2 @@
-# Recursos-de-Biolog-a
+# Recursos-de-Biología
 Marcos téroicos de la enseñanza y sus contenidos
